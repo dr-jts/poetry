@@ -27,8 +27,7 @@ Once knew me well, now a crumbling shell I watch as the years roll on,
 And in memory's haze I love the days forever gone from me,  
 As I lie on the marge of the old portage with grief for company.  
 
-## Rivers of Canada
-by Bliss Carman
+## Rivers of Canada - Bliss Carman
 
 O all the little rivers that run to Hudson's Bay,  
 They call me and call me to follow them away.  
@@ -81,8 +80,7 @@ St. Croix and Nashwaak and St. John whose haunts I used to know.
 And all the pleasant rivers that seek the Fundy foam,  
 They call me and call me to follow them home.  
 
-## Night Hymns on Lake Nipigon
-by Duncan Campbell Scott
+## Night Hymns on Lake Nipigon - Duncan Campbell Scott
 
 Here in the midnight, where the dark mainland and island  
 Shadows mingle in shadow deeper, profounder,  
