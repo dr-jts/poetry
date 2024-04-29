@@ -6,10 +6,10 @@
 
 ## The Old Canoe - George Marsh
 
-My seams gape wide as I'm tossed aside to rot on the lonely shore,
-And the leaves and mould like a shroud unfold, for the last of my days are o'er,
-But I float in my dreams on northern streams that never again I'll see,
-As I lie on the marge of the old portage with grief for company.
+My seams gape wide as I'm tossed aside to rot on the lonely shore,  
+And the leaves and mould like a shroud unfold, for the last of my days are o'er,  
+But I float in my dreams on northern streams that never again I'll see,  
+As I lie on the marge of the old portage with grief for company.  
 When the sunset gilds the timbered hills that guard Temagami,
 And the moon beams play on far James Bay by the brink of the frozen sea,
 In phantom guise my spirit flies as the dream blades dip and swing,
