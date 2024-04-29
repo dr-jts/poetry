@@ -266,7 +266,7 @@ On chaste Diana’s bathing-place,
 Loud ring the hills about and all  
 The shallows are abandoned.  
 
-## The Song My Paddle Sings, by Emily Pauline Johnson
+## The Song My Paddle Sings - Emily Pauline Johnson
 
 West wind, blow from your prairie nest,  
 Blow from the mountains, blow from the west.  
