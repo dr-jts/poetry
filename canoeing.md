@@ -26,3 +26,57 @@ Tho' the death-fraught way from the Saguenay to the storied Nipigon,
 Once knew me well, now a crumbling shell I watch as the years roll on,  
 And in memory's haze I love the days forever gone from me,  
 As I lie on the marge of the old portage with grief for company.  
+
+## Night Hymns on Lake Nipigon
+by Duncan Campbell Scott
+
+Here in the midnight, where the dark mainland and island  
+Shadows mingle in shadow deeper, profounder,  
+Sing we the hymns of the churches, while the dead water  
+Whispers before us.  
+
+Thunder is travelling slow on the path of the lightning;  
+One after one the stars and the beaming planets  
+Look serene in the lake from the edge of the storm-cloud,  
+Then have they vanished.  
+
+While our canoe, that floats dumb in the bursting thunder,  
+Gathers her voice in the quiet and thrills and whispers,  
+Presses her prow in the star-gleam, and all her ripple  
+Lapses in blackness.  
+
+Sing we the sacred ancient hymns of the churches,
+Chanted first in old-world nooks of the desert,
+While in the wild, pellucid Nipigon reaches
+Hunted the savage.
+
+Now have the ages met in the Northern midnight,
+And on the lonely, loon-haunted Nipigon reaches
+Rises the hymn of triumph and courage and comfort,
+Adeste Fideles.
+
+Tones that were fashioned when the faith brooded in darkness,
+Joined with sonorous vowels in the noble Latin,
+Now are married with the long-drawn Ojibwa,
+Uncouth and mournful.
+
+Soft with the silver drip of the regular paddles
+Falling in rhythm, timed with the liquid, plangent
+Sounds from the blades where the whirlpools break and are carried 
+Down into darkness;
+
+Each long cadence, flying like a dove from her shelter
+Deep in the shadow, wheels for a throbbing moment,
+Poises in utterance, returning in circles of silver
+To nest in the silence.
+
+All wild nature stirs with the infinite, tender
+Plaint of a bygone age whose soul is eternal,
+Bound in the lonely phrases that thrill and falter
+Back into quiet.
+
+
+Back they falter as the deep storm overtakes them,
+Whelms them in splendid hollows of booming thunder,
+Wraps them in rain, that, sweeping, breaks and onrushes
+Ringing like cymbals.
