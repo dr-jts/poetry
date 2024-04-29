@@ -6,35 +6,55 @@
 
 ## The Old Canoe - George Marsh
 
-My seams gape wide as I'm tossed aside to rot on the lonely shore,  
-And the leaves and mould like a shroud unfold, for the last of my days are o'er,  
+My seams gape wide as I'm tossed aside  
+to rot on the lonely shore,  
+And the leaves and mould like a shroud unfold, 
+for the last of my days are o'er,  
 
-But I float in my dreams on northern streams that never again I'll see,  
-As I lie on the marge of the old portage with grief for company.  
+But I float in my dreams on northern streams 
+that never again I'll see,  
+As I lie on the marge of the old portage 
+with grief for company.  
 
-When the sunset gilds the timbered hills that guard Temagami,  
-And the moon beams play on far James Bay by the brink of the frozen sea,  
+When the sunset gilds the timbered hills 
+that guard Temagami,  
+And the moon beams play on far James Bay 
+by the brink of the frozen sea,  
 
-In phantom guise my spirit flies as the dream blades dip and swing,  
-Where the waters flow from the long ago in the spell of the beckoning spring.  
+In phantom guise my spirit flies 
+as the dream blades dip and swing,  
+Where the waters flow from the long ago 
+in the spell of the beckoning spring.  
 
-Do the cow-moose call on the Montreal when the first frost bites the air,  
-And the mists unfold from the red and gold that autumn ridges wear?  
+Do the cow-moose call on the Montreal 
+when the first frost bites the air,  
+And the mists unfold from the red and gold 
+that autumn ridges wear?  
 
-Do the white falls roar as they did of yore on the Lady Evelyn,  
-And the square-tail leap from the black pool deep where the pictured rocks begin?  
+Do the white falls roar as they did of yore 
+on the Lady Evelyn,  
+And the square-tail leap from the black pool 
+deep where the pictured rocks begin?  
 
-Yes, the fur fleet sings on Temiscaming as the ashen paddles bend,  
-And the crews carouse at Rupert's House at the sullen winter's end,  
+Yes, the fur fleet sings on Temiscaming 
+as the ashen paddles bend,  
+And the crews carouse at Rupert's House 
+at the sullen winter's end,  
 
-But my days are done where the lean wolves run, I'll ripple no more their path,  
-Where the grey geese race 'cross the red moon's face from the white winds Artic wrath.  
+But my days are done where the lean wolves run, 
+I'll ripple no more their path,  
+Where the grey geese race 'cross the red moon's face 
+from the white winds Artic wrath.  
 
-Tho' the death-fraught way from the Saguenay to the storied Nipigon,  
-Once knew me well, now a crumbling shell I watch as the years roll on,  
+Tho' the death-fraught way from the Saguenay 
+to the storied Nipigon,  
+Once knew me well, now a crumbling shell 
+I watch as the years roll on,  
 
-And in memory's haze I love the days forever gone from me,  
-As I lie on the marge of the old portage with grief for company.  
+And in memory's haze I love the days 
+forever gone from me,  
+As I lie on the marge of the old portage 
+with grief for company.  
 
 ## Rivers of Canada - Bliss Carman
 
@@ -183,8 +203,66 @@ Around each young divinity
 When, following the recondite brook,  
 Sudden upon this scene I look.  
 
+## The Old Canoe - Emily Rebecca Page                   
+
+Where the rocks are gray and the shore is steep,  
+And the waters below look dark and deep ...  
+Where the ragged pine in its lonely pride  
+Leans gloomily over the murky tide;  
+Where the reeds and rushes are tall and rank,  
+And the weeds grow thick on the winding bank ...  
+Where the shadow is heavy the whole day through,  
+Lays at its moorings the old canoe.  
+
+The useless paddles are idly dropped,  
+Like the sea-bird's wings that the storm hath lopped,  
+And crossed o'er the railing, one o'er one,  
+Like folded hands when the work is done;  
+While busily back and forth between  
+The spider stretches his silvery screen,  
+And the solemn owl, with his dull "too-hoo",  
+Settles down on the side of the old canoe.  
+
+The stern, half sunk in the slimy wave,  
+Rots slowly away in its living grave;  
+And the green moss creeps o'er its full decay,  
+Hiding the mouldering dust away,  
+Like the hand that plants o'er the tomb a flower,  
+Or the ivy that mantles the fallen tower;  
+While many a blossom of loveliest hue  
+Springs up o'er the stern of the old canoe.  
+
+The currentless waters are dead and still ...  
+But the light winds play with the boat at will;  
+And lazily in and out again  
+It floats the length of its rusty chain,  
+Like the weary march of the hands of time  
+That meet and part at the noontide chime;  
+And the shore is kissed at each turn anew  
+By the dripping bow of the old canoe.  
+
+Oh, many a time, with a careless hand,  
+I have pushed it away from the pebbly strand,  
+And paddled it down where the stream runs quick ...  
+Where the whirls are wild and the eddies thick,   
+And laughed as I leaned o'er the rocking side,  
+And looked below in the broken tide,  
+To see that the faces and boats were two,  
+That were mirrored back from the old canoe.  
+
+But now, as I lean o'er the crumbling side,  
+And look below in the sluggish tide,  
+The face that I see there is graver grown,  
+And the laugh that I hear has a soberer tone,  
+And the hands that lent to the light skiff wings  
+Have grown familiar with sterner things;  
+But I love to think of the hours that flew  
+As I rocked where the whirls their white spray threw,  
+Ere the blossoms waved or the green moss grew  
+O'er the mouldering stern of the old canoe.  
+
 And light with unfamiliar face  
-On chaste Diana’s bathing-place,  
+On chaste Diana’s bathing-place,    
 Loud ring the hills about and all  
 The shallows are abandoned.  
 
