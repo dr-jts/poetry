@@ -33,8 +33,8 @@ that autumn ridges wear?
 
 Do the white falls roar as they did of yore  
 on the Lady Evelyn,   
-And the square-tail leap from the black pool  
-deep where the pictured rocks begin?  
+And the square-tail leap from the black pool deep  
+where the pictured rocks begin?  
 
 Yes, the fur fleet sings on Temiscaming  
 as the ashen paddles bend,  
