@@ -327,5 +327,88 @@ And up on the hills against the sky,
 A fir tree rocking its lullaby  
 Swings, swings,  
 Its emerald wings,  
-Swelling the song that my paddle sings.  
+Swelling the song that my paddle sings. 
+
+## The Voyageur - William Henry Drummond
+
+Dere's somet'ing stirrin' ma blood tonight,  
+    On de night of de young new year,  
+  Wile de camp is warm an' de fire is bright,  
+    An' de bottle is close at han'--  
+  Out on de reever de nort' win' blow,  
+  Down on de valley is pile de snow,  
+  But w'at do we care so long we know  
+    We’re safe on de log cabane?  
+
+  Drink to de healt' of your wife an' girl,
+    Anoder wan for your frien',
+  Den geev' me a chance, for on all de worl'
+    I’ve not many frien' to spare--
+  I’m born, w'ere de mountain scrape de sky,
+  An' bone of ma fader an' moder lie,
+  So I fill de glass an' I raise it high
+    An' drink to de Voyageur.
+
+  For dis is de night of de jour de l'an,
+    W'en de man of de Grand Nor' Wes'
+  T'ink of hees home on de St. Laurent,
+    An' frien' he may never see--
+  Gone he is now, an' de beeg canoe
+  No more you’ll see wit' de red-shirt crew,
+  But long as he leev' he was alway true,
+    So we’ll drink to hees memory.
+
+  Ax' heem de nort' win' w'at he see
+    Of de Voyageur long ago,
+  An' he’ll say to you w'at he say to me,
+    So lissen hees story well--
+  "I see de track of hees botte sau-vage
+  On many a hill an' long portage
+  Far far away from hees own vill-age
+    An' soun' of de parish bell--
+
+  "I never can play on de Hudson Bay
+    Or mountain dat lie between
+  But I meet heem singin' hees lonely way
+    De happies' man I know--
+  I cool hees face as he’s sleepin' dere
+  Under de star of de Red Rivière,
+  An' off on de home of de great w'ite bear,
+    I’m seein' hees dog traineau.
+
+  "De woman an' chil'ren's runnin' out
+    On de wigwam of de Cree--
+  De leetle papoose dey laugh an' shout
+    W'en de soun' of hees voice dey hear--
+  De oldes' warrior of de Sioux
+  Kill hese'f dancin' de w'ole night t'roo,
+  An de Blackfoot girl remember too
+    De ole tam Voyageur.
+
+  "De blaze of hees camp on de snow I see,
+    An' I lissen hees 'En Roulant'
+  On de lan' w'ere de reindeer travel free,
+    Ringin' out strong an' clear--
+  Offen de grey wolf sit before
+  De light is come from hees open door,
+  An' caribou foller along de shore
+    De song of de Voyageur.
+
+  "If he only kip goin', de red ceinture,
+    I'd see it upon de Pole
+  Some mornin' I’m startin' upon de tour
+    For blowin' de worl' aroun'--
+  But w'erever he sail an' w'erever he ride,
+  De trail is long an' de trail is wide,
+  An' city an' town on ev'ry side
+    Can tell of hees campin' groun'."
+
+  So dat's 'de reason I drink to-night
+    To de man of de Grand Nor' Wes',
+  For hees heart was young, an' hees heart was light
+    So long as he’s leevin' dere--
+  I’m proud of de sam' blood in my vein
+  I’m a son of de Nort' Win' wance again--
+  So we’ll fill her up till de bottle's drain
+    An' drink to de Voyageur.
 
