@@ -141,4 +141,50 @@ Whelms them in splendid hollows of booming thunder,
 Wraps them in rain, that, sweeping, breaks and onrushes  
 Ringing like cymbals.  
 
+## The Canoe Speaks - Robert Louis Stevenson
+
+On the great streams the ships may go  
+About men’s business to and fro.  
+But I, the egg-shell pinnace, sleep  
+On crystal waters ankle-deep:  
+
+I, whose diminutive design,  
+Of sweeter cedar, pithier pine,  
+Is fashioned on so frail a mould,  
+A hand may launch, a hand withhold:  
+
+I, rather, with the leaping trout  
+Wind, among lilies, in and out;  
+I, the unnamed, inviolate,  
+Green, rustic rivers, navigate;  
+
+My dripping paddle scarcely shakes  
+The berry in the bramble-brakes;  
+Still forth on my green way I wend  
+Beside the cottage garden-end;  
+
+And by the nested angler fare,  
+And take the lovers unaware.  
+By willow wood and water-wheel  
+Speedily fleets my touching keel;  
+
+By all retired and shady spots  
+Where prosper dim forget-me-nots;  
+By meadows where at afternoon  
+The growing maidens tropp in June  
+
+To loose their girdles on the grass.  
+Ah! speedier than before the glass  
+The backward toilet goes; and swift  
+As swallows quiver, robe and shift,  
+
+And the rough country stockings lie  
+Around each young divinity  
+When, following the recondite brook,  
+Sudden upon this scene I look.  
+
+And light with unfamiliar face  
+On chaste Diana’s bathing-place,  
+Loud ring the hills about and all  
+The shallows are abandoned.  
 
