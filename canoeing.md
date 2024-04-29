@@ -48,13 +48,13 @@ I hear the brawling rapid, the thunder of the fall,
 And when I think upon them I cannot stay at all.  
 
 At the far end of the carry, where the wilderness begins,  
-Set me down with my canoe-load--and forgiveness of my sins.  
+Set me down with my canoe-load -- and forgiveness of my sins.  
 
 O all the mighty rivers beneath the Polar Star,  
 They call me and call me to follow them afar.  
 
 Peace and Athabasca and Coppermine and Slave,  
-And Yukon and Mackenzie--the highroads of the brave.  
+And Yukon and Mackenzie -- the highroads of the brave.  
 
 Saskatchewan, Assiniboine, the Bow and the Qu'Appelle,  
 And many a prairie river whose name is like a spell.  
@@ -69,7 +69,7 @@ O all the headlong rivers that hurry to the West,
 They call me and lure me with the joy of their unrest.  
 
 Columbia and Fraser and Bear and Kootenay,  
-I love their fearless reaches where winds untarnished play--  
+I love their fearless reaches where winds untarnished play --  
 
 The rush of glacial water across the pebbly bar  
 To polished pools of azure where the hidden boulders are.  
@@ -77,7 +77,7 @@ To polished pools of azure where the hidden boulders are.
 Just there, with heaven smiling, any morning I would be,  
 Where all the silver rivers go racing to the sea.  
 
-O well remembered rivers that sing of long ago,  
+O well-remembered rivers that sing of long ago,  
 Ajourneying through summer or dreaming under snow.  
 
 Among their meadow islands through placid days they glide,  
