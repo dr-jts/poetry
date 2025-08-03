@@ -191,7 +191,7 @@ Speedily fleets my touching keel;
 By all retired and shady spots  
 Where prosper dim forget-me-nots;  
 By meadows where at afternoon  
-The growing maidens tropp in June  
+The growing maidens troop in June  
 
 To loose their girdles on the grass.  
 Ah! speedier than before the glass  
