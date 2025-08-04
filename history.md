@@ -4,8 +4,7 @@
 1. TOC
 {:toc}
 
-## Ozymandias
-By Percy Bysshe Shelley
+## Ozymandias - Percy Bysshe Shelley
 
 I met a traveller from an antique land,
 who said—“Two vast and trunkless legs of stone
@@ -22,8 +21,7 @@ Nothing beside remains. Round the decay
 Of that colossal Wreck, boundless and bare
 The lone and level sands stretch far away.”
 
-## On First Looking into Chapman's Homer
-By John Keats
+## On First Looking into Chapman's Homer - John Keats
 
 Much have I travell'd in the realms of gold,
 And many goodly states and kingdoms seen;
@@ -40,8 +38,7 @@ He star'd at the Pacific—and all his men
 Look'd at each other with a wild surmise—
 Silent, upon a peak in Darien.
 
-## The Convergence of the Twain
-By Thomas Hardy
+## The Convergence of the Twain - Thomas Hardy
 
 (Lines on the loss of the "Titanic")
 
