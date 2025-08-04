@@ -42,46 +42,73 @@ Silent, upon a peak in Darien.
 
 (Lines on the loss of the "Titanic")
 
-In a solitude of the sea
+In a solitude of the sea  
 Deep from human vanity,  
 And the Pride of Life that planned her, stilly couches she.
 
-Steel chambers, late the pyres
+Steel chambers, late the pyres  
 Of her salamandrine fires,  
 Cold currents thrid, and turn to rhythmic tidal lyres.
 
-Over the mirrors meant
+Over the mirrors meant  
 To glass the opulent  
 The sea-worm crawls — grotesque, slimed, dumb, indifferent.
 
-Jewels in joy designed
+Jewels in joy designed  
 To ravish the sensuous mind  
 Lie lightless, all their sparkles bleared and black and blind.
 
-Dim moon-eyed fishes near
+Dim moon-eyed fishes near  
 Gaze at the gilded gear  
 And query: "What does this vaingloriousness down here?" ...
 
-Well: while was fashioning
+Well: while was fashioning  
 This creature of cleaving wing,  
 The Immanent Will that stirs and urges everything
 
-Prepared a sinister mate
+Prepared a sinister mate  
 For her — so gaily great —  
 A Shape of Ice, for the time far and dissociate.
 
-And as the smart ship grew
+And as the smart ship grew  
 In stature, grace, and hue,  
 In shadowy silent distance grew the Iceberg too.
 
- Alien they seemed to be;
+ Alien they seemed to be;  
  No mortal eye could see  
 The intimate welding of their later history,
 
-Or sign that they were bent
+Or sign that they were bent  
 By paths coincident  
 On being anon twin halves of one august event,
 
-Till the Spinner of the Years
+Till the Spinner of the Years  
 Said "Now!" And each one hears,  
 And consummation comes, and jars two hemispheres.
+
+## A Shropshire Lad 31: On Wenlock Edge the wood's in trouble - A. E. Housman
+
+On Wenlock Edge the wood's in trouble;
+      His forest fleece the Wrekin heaves;
+The gale, it plies the saplings double,
+      And thick on Severn snow the leaves.
+
+'Twould blow like this through holt and hanger
+      When Uricon the city stood:
+'Tis the old wind in the old anger,
+      But then it threshed another wood.
+
+Then, 'twas before my time, the Roman
+      At yonder heaving hill would stare:
+The blood that warms an English yeoman,
+      The thoughts that hurt him, they were there.
+
+There, like the wind through woods in riot,
+      Through him the gale of life blew high;
+The tree of man was never quiet:
+      Then 'twas the Roman, now 'tis I.
+
+The gale, it plies the saplings double,
+      It blows so hard, 'twill soon be gone:
+To-day the Roman and his trouble
+      Are ashes under Uricon.
