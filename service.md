@@ -1,10 +1,10 @@
-# The Call of the Wild
+# Robert W. Service
 {: .no_toc }
 
 1. TOC
 {:toc}
 
-## The Call Of The Wild -  Robert W. Service
+## The Call Of The Wild
 
 Have you gazed on naked grandeur where there's nothing else to gaze on,  
 Set pieces and drop-curtain scenes galore,  
