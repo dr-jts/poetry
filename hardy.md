@@ -4,7 +4,7 @@
 1. TOC
 {:toc}
 
-## The Convergence of the Twain - Thomas Hardy
+## The Convergence of the Twain
 
 (Lines on the loss of the "Titanic")
 
