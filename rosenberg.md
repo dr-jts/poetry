@@ -1,10 +1,10 @@
-# War
+# Isaac Rosenberg
 {: .no_toc }
 
 1. TOC
 {:toc}
 
-## Break of Day in the Trenches - Isaac Rosenberg
+## Break of Day in the Trenches
 
 The darkness crumbles away.  
 It is the same old druid Time as ever,  
