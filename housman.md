@@ -4,7 +4,7 @@
 1. TOC
 {:toc}
 
-## A Shropshire Lad 31: On Wenlock Edge the wood's in trouble
+## On Wenlock Edge the wood's in trouble
 
 On Wenlock Edge the wood's in trouble;  
       His forest fleece the Wrekin heaves;  
